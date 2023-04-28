@@ -26,4 +26,4 @@ Follow me on Instagram and Facebook to get Updates on Projects and Ideas that We
 Instagram -  https://www.instagram.com/freebirdscrew
 
 
-The More You Analyze, More You Get Insights from the Data.
+The More You Analyze, More You Get Insights from the Data
